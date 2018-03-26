@@ -1,0 +1,1 @@
+Inspired by Classic Traveller (1e)
